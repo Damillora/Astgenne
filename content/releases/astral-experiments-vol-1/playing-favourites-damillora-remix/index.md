@@ -6,6 +6,8 @@ genres:
 ---
 ![album](feature.jpg)
 
+LISTEN ON SOUNDCLOUD: [Playing Favourites (Damillora remix)](https://soundcloud.com/damillora/playing-favourites-damillora-remix)
+
 DOWNLOAD THIS RELEASE: [Astral Experiments volume 1](https://nanao.moe/astralexperimentsvol1)
 
 ## THE CAT MUST STAY ON THE MASTER BUS
